@@ -31,4 +31,4 @@ We value your feedback! If you encounter any issues or have suggestions for impr
 Thank you for choosing E GURU Online Learning Platform. Happy learning!
 ## At the last
 
-Thank you for visiting our websites! codes, We hope you find the information you need and enjoy exploring our code and files.
+Thank you for visiting our codes!, We hope you find the information you need and enjoy exploring our code and files.
